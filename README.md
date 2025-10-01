@@ -1,1 +1,2 @@
-# everyone-loves-her
+# Everyone Loves Her
+La vie de Kang Min-ah bascule lorsqu'elle acquiert soudainement une capacité mystérieuse. Ce don inattendu la place face à des choix cruciaux aux conséquences irréversibles. Tiraillée entre colère, confusion et un profond sens de la justice, Min-ah entame un périple où chaque décision peut changer le cours de son destin. Son pouvoir est-il une bénédiction ou une malédiction ? Jusqu'où la mènera-t-il ?
